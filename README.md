@@ -17,7 +17,3 @@ https://user-images.githubusercontent.com/61374847/128423246-f6144b23-b01a-4226-
 wooooooooow, we wrote whole 7 bytes!!!! 4 whole lines!!! that's worth uploading  
   
 what am i doing with my life
-
-
-sheeeeerm stickkk
-
